@@ -1,1 +1,1 @@
-https://xredkox.github.io/rsschool-cv/
+https://xredkox.github.io/rschool-cv/
